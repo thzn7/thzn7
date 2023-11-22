@@ -10,4 +10,4 @@
 
 🧍🏽🧍🏻‍♀💍 e amo a cf
 
-![](https://media.tenor.com/JUP8ildgTf0AAAAC/kkkk.gif)
+![](https://media.tenor.com/IZv6D4UcqE4AAAAC/neyneysupremo.gif)
