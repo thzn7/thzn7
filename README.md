@@ -8,6 +8,6 @@
 
 ⚽️ sou amante de futebol
 
-🧍🏽🧍🏻‍♀💍 e amo a fer
+🧍🏽🧍🏻‍♀💍 e amo as do job
 
 ![](https://media.tenor.com/IZv6D4UcqE4AAAAC/neyneysupremo.gif)
