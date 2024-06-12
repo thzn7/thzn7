@@ -1,8 +1,8 @@
 ### Boa Boa seus gonorreio 🤙
 
-👤 Sou Thomaz Silva
+👤 Th 00
 
-🤪 tenho 16 anos
+🤪 tenho 17 anos
 
 📍 curitiba pr
 
